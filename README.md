@@ -2,7 +2,7 @@
 Hey there! 👋 I'm Mindgamer1024, a passionate White Hat Hacker in the making.
 -->
 
-# 👋 Hi, I'm Mindgamer1024
+# 👋 Hi, I'm CH-Anonymous
 
 ## 👀 About Me
 
